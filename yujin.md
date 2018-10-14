@@ -1,1 +1,0 @@
-Worship Euler's formula!!!
